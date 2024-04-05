@@ -1,0 +1,1 @@
+A professional portfolio showcases skills, achievements, and credentials. It typically includes a resume, work samples, certificates, testimonials, and achievements. Tailored to a specific field, it highlights expertise, personal statement, and contact information.
